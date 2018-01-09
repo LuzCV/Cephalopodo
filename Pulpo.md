@@ -1,7 +1,5 @@
 ## Cephalopodo  ##
-
-![cepia](http://4.bp.blogspot.com/--Wh_enGe5bs/V1G5HA_T8EI/AAAAAAABuzY/Vu1wjKsiIcs1eqluNOVQEfnWfKnyg22EwCLcB/s1600/coconut-octopus-1.jpg)
-
+ <p aling "center"> Fig. 1 Octopus bimaculatus californiano![cepia](http://4.bp.blogspot.com/--Wh_enGe5bs/V1G5HA_T8EI/AAAAAAABuzY/Vu1wjKsiIcs1eqluNOVQEfnWfKnyg22EwCLcB/s1600/coconut-octopus-1.jpg)</center/> 
 
 **Descripción**
 
@@ -29,6 +27,7 @@ Normalmente tienen muchas oportunidades para la alimentación en el ambiente que
 El apareamiento tiene lugar a una edad temprana para este pulpo, ya que tienen una vida de no más de dos años. Los machos evitan a las hembras hasta que están listos para el apareamiento, y luego las persiguen agresivamente. Es común que se apareen con tantas hembras como puedan. Después de ese período de reproducción, las funciones del cuerpo simplemente comienzan a menguar hasta que mueren. Como resultado, los machos no vivirán más de unas pocas semanas después del apareamiento.
 
 Las hembras tienen el mismo destino, pero primero tienen que fertilizar sus huevos con el esperma que el macho ha depositado en su cavidad corporal. Ellas fertilizan miles de huevos, uno por uno. Luego los colocan debajo de sus brazos en un esfuerzo para protegerlos hasta que están listos para eclosionar. Exhaustas y sin comida durante meses, la hembras mueren a medida que sus hijos nacen.
+http://2.bp.blogspot.com/-EJr2hnDIshM/VZqeMFl8MiI/AAAAAAACKqY/lZ-CPy67rr0/s1600/pulpobabyoctopuspd5.jpg
 
 **Interacción humana**
 
