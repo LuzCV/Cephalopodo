@@ -1,6 +1,7 @@
 ## Cephalopodo  ##
 
-<center>![cepia](http://4.bp.blogspot.com/--Wh_enGe5bs/V1G5HA_T8EI/AAAAAAABuzY/Vu1wjKsiIcs1eqluNOVQEfnWfKnyg22EwCLcB/s1600/coconut-octopus-1.jpg)</center>
+![cepia](http://4.bp.blogspot.com/--Wh_enGe5bs/V1G5HA_T8EI/AAAAAAABuzY/Vu1wjKsiIcs1eqluNOVQEfnWfKnyg22EwCLcB/s1600/coconut-octopus-1.jpg)
+
 
 **Descripción**
 
